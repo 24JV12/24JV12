@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ... i think never
 - 📫 How to reach me ... DON'T
 - 😄 Pronouns: ... Polar Bear
-- ⚡ Fun fact: ... I have 15hrs a day not 24hrs like you
+- ⚡ Fun fact: ... I have 14hrs a day not 24hrs like you
