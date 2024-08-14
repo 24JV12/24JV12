@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @24JV12
-- 👀 I’m interested in ... Nothing
-- 🌱 I’m currently learning ... idk i guess Nothing again
-- 💞️ I’m looking to collaborate on ... i think never
-- 📫 How to reach me ... DON'T
-- 😄 Pronouns: ... Polar Bear
-- ⚡ Fun fact: ... I have 14hrs a day not 24hrs like you
+- 👀 I’m interested in Movies & Stuff
+- 🌱 I’m currently learning Python & BATCH
+- 😄 Pronouns: He
+- ⚡ Fun fact: I hate SCHOOL & CHEMISTRY
