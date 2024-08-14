@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @24JV12
 - 👀 I’m interested in Movies & Stuff
 - 🌱 I’m currently learning Python & BATCH
-- 😄 Pronouns: He
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I hate SCHOOL & CHEMISTRY
